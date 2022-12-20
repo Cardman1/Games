@@ -1,2 +1,0 @@
-# Games
- Alex and Oleg
